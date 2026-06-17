@@ -22,7 +22,7 @@
 
 ## 📦 Скачать проект
 
-| **Google Drive** | [**СКАЧАТЬ ДЕМО**](https://drive.google.com/drive/folders/1J6m-e0trYLEBlAU4u5C45Jas58XdXLD?usp=sharing) |
+| **Google Drive** | [**СКАЧАТЬ ДЕМО**](https://drive.google.com/drive/folders/1_J6m-e0trYLEBlAU4u5C45Jas58XdXLD?usp=sharing) |
 
 ---
 
